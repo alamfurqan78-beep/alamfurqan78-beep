@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm A Fresher And I Am looking For job<br>i learned about DATA ANALYST<br>i studying from AKTU university <br>i am BTECH Student<br> 
+I'm A Fresher And Currently I Am Working In Cogito As A Data Annotator<br>i learned about DATA ANALYST<br>i studying from AKTU university <br>i am BTECH Student<br> 
 
 
 ## 🌐 Socials:
